@@ -1,1 +1,1 @@
-# ConstruccionDeSoftware2AlejandroGonz-lez
+# ConstruccionDeSoftware2AlejandroGonzalez
